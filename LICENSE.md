@@ -1,4 +1,4 @@
-#  
+#  99 nights in the forest Scripts hidden is the best 99 nights in the forest Script, featuring anti-ban and one-hit kill. Safe and powerful for all
 
 
 
